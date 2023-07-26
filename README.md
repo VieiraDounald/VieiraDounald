@@ -4,7 +4,7 @@
 - Estudante de analise e desenvolvimento de sistemas, estudante de java também 😁
 - Procurando mudar de area e fazer parte desse mundo de T.I.
 
-- Para entrar em contato comigo:
+- Minhas redes sociais:
 
 
  <div> 
